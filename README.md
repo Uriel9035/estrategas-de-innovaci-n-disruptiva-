@@ -1,0 +1,1 @@
+# estrategas-de-innovaci-n-disruptiva-
